@@ -23,3 +23,5 @@ Amor, por favor,
 Não desligue o telefone
 Eu sou sua mulher
 E você é o meu homem... (2x)
+
+BANDA DEJAVU, COM DJ JUNINHO PORTUGAL (É SHOOOOW!)
