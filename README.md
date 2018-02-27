@@ -19,3 +19,7 @@ Eu quero te possuir, quero voce todinha pra mim 2X
 O que pensa que eu sou
 Se não sou oque pensou, me libera, não insista,
 vai viver um outro amor2X
+Amor, por favor,
+Não desligue o telefone
+Eu sou sua mulher
+E você é o meu homem... (2x)
